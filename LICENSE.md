@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Affinity Photo for macOS extension with Affinity Photo for macOS new Extension - auto-retouch and vector tools. Featuring auto-retouch and vector tools, it's the
 
 
 
